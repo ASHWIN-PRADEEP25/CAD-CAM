@@ -1,0 +1,1 @@
+SOLIDWORKS models and drawings
